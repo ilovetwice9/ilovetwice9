@@ -1,6 +1,6 @@
 # Hi, I'm ilovetwice9! 👋
 
-### Senior High School Student | Aspiring Developer | Calc Nerd | K-Pop Enthusiast 
+### Senior High School Student | Aspiring Surgeon | Calc Nerd | K-Pop Enthusiast 
 
 ---
 
