@@ -1,6 +1,6 @@
 # Hi, I'm ilovetwice9! 👋
 
-### Senior High School Student | Aspiring Developer | K-Pop Enthusiast
+### Senior High School Student | Aspiring Developer | Calc Nerd | K-Pop Enthusiast 
 
 ---
 
@@ -30,7 +30,7 @@
 ## 📚 Skills
 
 - Basic Frontend: `HTML` | `CSS` | `JavaScript`
-- Learning: `C++`
+- Learning: `Python` | `C++` | `SQL` 
 
 ---
 
