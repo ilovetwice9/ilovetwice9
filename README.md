@@ -1,4 +1,4 @@
-# Hi, I'm ilovetwice9! 👋
+# Hi, I'm Acetylcholinesterase! 👋
 
 ### Senior High School Student | Aspiring Surgeon | Calc Nerd | K-Pop Enthusiast 
 
