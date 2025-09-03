@@ -1,6 +1,6 @@
 # Hi, I'm Acetylcholinesterase! 👋
 
-### Senior High School Student | Aspiring Surgeon | Stalking Geek | K-Pop Enthusiast 
+### Senior High School Student | Aspiring Surgeon | Calculus Nerd | K-Pop Enthusiast 
 
 ---
 
